@@ -1,0 +1,2 @@
+# CRYPTO
+I love crypto
